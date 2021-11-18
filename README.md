@@ -6,6 +6,7 @@
 - Completed the full time immersive program at [Hack Reactor](https://www.hackreactor.com/coding-bootcamp?gclid=CjwKCAjwuvmHBhAxEiwAWAYj-GAGxDfcp29hdLplIaXfBrrLL-noZV7WkwMzGgZ54yDuHydiM9izaxoCWAoQAvD_BwE) 
 - I managed a restaurant for about five years before switching to tech
 - I am an avid mountain biker
+- Was voted 'most tenacious by my peers at Hack Reactor' 
 
 ---
 
